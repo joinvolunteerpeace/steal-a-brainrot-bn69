@@ -1,4 +1,4 @@
-
+Experience steal a brainrot like never before with steal a brainrot Scripts best, the #1 Script. Includes infinite resources and esp for unbeatable
 
 
 
